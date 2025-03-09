@@ -18,6 +18,18 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [𝐂𝐫𝐚𝐳�
 
 
 ━━━━━━━━━━━━━━━━━━━━
+
+<p align="center">
+    <b>ᴘʀᴏғɪʟᴇ ᴠɪsɪᴛᴏʀs</b><br>
+<img align="middle" alt="count" src="https://count.getloli.com/get/@:otterai?theme=rule34">
+   
+<h1> <img src="https://raw.githubusercontent.com/AnonymousX1025/AnonymousX1025/master/resources/songs.gif" width="57px"> ᴄᴜʀʀᴇɴᴛʟʏ ᴏɴ sᴘᴏᴛɪғʏ </h1>
+
+[<img src="https://novatorem.visualbean.vercel.app/api/spotify" alt="Subaru Spotify" width="75%" />](https://open.spotify.com/user/3147zqots32jqlmaenz5atdkxuem)
+
+[<img src="https://github.com/phoenix-monarch/phoenix-monarch/blob/master/resources/hr.gif"/>](https://github.com/otterai/)
+
+━━━━━━━━━━━━━━━━━━━━
 <h3 align="center">
     ─「 ᴄʀᴇᴅɪᴛs 」─
 </h3>
